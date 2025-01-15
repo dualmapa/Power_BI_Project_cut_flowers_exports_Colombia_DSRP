@@ -18,9 +18,10 @@ I leave you two screenshots and the link of the publication:
 ](https://app.powerbi.com/groups/me/reports/ae69ed5b-8bb3-47dc-8987-0cb1a2c937c6?pbi_source=desktop)
 
 
-![image](https://github.com/user-attachments/assets/ba6df83c-bafc-4e6d-9bf9-0295c004b0dc)
+![image](https://github.com/user-attachments/assets/4cfe1071-566c-4fcf-8ee8-b569b41ce88a)
 
 
-![image](https://github.com/user-attachments/assets/980629cc-cad2-4174-9496-544b3a7756e6)
+
+![image](https://github.com/user-attachments/assets/0cb13481-f4e2-4690-8972-06bd68511fc0)
 
 
